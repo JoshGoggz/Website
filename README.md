@@ -1,1 +1,1 @@
-JoshGoggz.github.io Website
+JoshGoggz.github.io
